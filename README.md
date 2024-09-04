@@ -1,4 +1,1 @@
-# Completely free forever Phantom Forces modification. 
-
-Made by @dementia enjoyer
-(eldmonstret on discord)
+idrc, i just wanna play phantom forces lmao
