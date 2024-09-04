@@ -1,2 +1,1 @@
-idrc, i just wanna play phantom forces lmao
-ye its updating rn and i still wana play :(
+not associated with @eldemonstret just wanna play phantom forces while they update
